@@ -36,3 +36,8 @@ Atrapa las frutas para sumar puntos.
 Evita que demasiadas frutas caigan sin atraparlas.
 
 ¡Supera tu récord y desafía la dificultad creciente!
+
+### 📞 Contacto 👩🏻‍💻
+
+WhatsApp: +52 7491148***
+Instagram: @esme.blossom.xo
